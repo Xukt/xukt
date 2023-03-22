@@ -1,4 +1,12 @@
-### Hi there 👋
+### XUKT#0001 KIDS
+
+
+
+fun fact - i own you
+
+fun fact - none
+
+im currently learning about - how to r your mom
 
 <!--
 **Xukt/xukt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
